@@ -1,5 +1,5 @@
 # Baby Face Filter created &amp; delivered to @Amansindhwani1 !
-<div align="cente">
+<div align="center">
 
 
 https://user-images.githubusercontent.com/37971771/126936410-6041ddc4-7737-4551-af72-3dd80fd50253.MOV
