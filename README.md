@@ -1,4 +1,4 @@
-# Baby Face Filter created &amp; delivered to @Amansindhwani1 !
+# Baby Face Filter created &amp; delivered to @Amansindhwani1 
 <div align="center">
 
 
